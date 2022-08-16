@@ -2,7 +2,7 @@
 - 👀 I’m interested in SFF and linguistics
 - 🌱 I’m currently learning Old English and Spanish
 - 💞️ I’m looking to collaborate on BOOKSES
-- 📫 How to reach me please don't!
+- 📫 How to reach me: seventeenmagpie aaaaaaaaaaaaaat gmail dooooooooooooooooooooot com
 
 <!---
 seventeenmagpie/seventeenmagpie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
